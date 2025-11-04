@@ -250,7 +250,7 @@ Angaben gemäß § 5 DDG:
 
 Stadt Wuppertal, vertreten durch die Oberbürgermeisterin
 
-Melanie Scherff  
+Miriam Scherff  
 Johannes-Rau-Platz 1  
 42275 Wuppertal
 
@@ -302,7 +302,7 @@ Der Verantwortliche im Sinne der Datenschutz-Grundverordnung und anderer nationa
 
 Stadt Wuppertal, vertreten durch die Oberbürgermeisterin
 
-Melanie Scherff  
+Miriam Scherff  
 Johannes-Rau-Platz 1  
 42275 Wuppertal
 
@@ -485,7 +485,7 @@ Angaben gemäß § 5 DDG:
 
 Stadt Wuppertal, vertreten durch die Oberbürgermeisterin
 
-Melanie Scherff  
+Miriam Scherff  
 Johannes-Rau-Platz 1 
 42275 Wuppertal
 
@@ -537,7 +537,7 @@ Der Verantwortliche im Sinne der Datenschutz-Grundverordnung und anderer nationa
 
 Stadt Wuppertal, vertreten durch die Oberbürgermeisterin
 
-Melanie Scherff  
+Miriam Scherff  
 Johannes-Rau-Platz 1  
 42275 Wuppertal
 
